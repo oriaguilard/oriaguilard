@@ -19,3 +19,4 @@ Actualmente me encuentro estudiando y practicando:
 -Analisis financiero
 
 Me puedes contactar en: aguilar.orianna@gmail.com
+h
